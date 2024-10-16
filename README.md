@@ -1,2 +1,2 @@
 # my-cod
-try to create it
+Руднев Илья 23П-2
